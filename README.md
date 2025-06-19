@@ -1,2 +1,2 @@
 # Fake-roblox-cheat-loader
-a fake cheat loader
+I was bored. Content creators can use this to fake cheating ig.
